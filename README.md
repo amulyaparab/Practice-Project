@@ -1,0 +1,3 @@
+# Practice
+
+- i AM AMULYA LEARNING CODING
